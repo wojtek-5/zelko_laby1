@@ -3,4 +3,4 @@ Ile Cię trzeba cenić, ten tylko się dowie,
 Kto Cię stracił.
 
 Mickiewicz ćpun
-Netto XDDD
+Elo żelo
